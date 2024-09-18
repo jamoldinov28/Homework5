@@ -1,0 +1,1 @@
+# So'rovnomani to'ldiring?
